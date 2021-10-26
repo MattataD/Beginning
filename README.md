@@ -1,0 +1,2 @@
+# Beginning
+THINGS I FUCKING NEED TO LEARN
